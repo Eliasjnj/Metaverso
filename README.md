@@ -15,6 +15,6 @@ Esse tal de "Metaverso" que alguns especialistas estão falando que é a tendên
 
 
 
-**Fonte: **<https://www.cnnbrasil.com.br/business/entenda-o-que-e-o-metaverso-e-por-que-ele-pode-nao-estar-tao-distante-de-voce/>
+**Fonte:**<https://www.cnnbrasil.com.br/business/entenda-o-que-e-o-metaverso-e-por-que-ele-pode-nao-estar-tao-distante-de-voce/>
 
 
